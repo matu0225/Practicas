@@ -1,3 +1,3 @@
 # Practicas
 Carpeta resguardo
-nada no se como borrar esto.
+BIENVENIDOS! SOY NUEVO :D
